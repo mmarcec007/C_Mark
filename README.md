@@ -32,7 +32,4 @@ Open Source:
 
 
 ## Thanks for checking me out! Bye Bye 🤪
-
-<div class="tenor-gif-embed" data-postid="18973858" data-share-method="host" data-aspect-ratio="1.43498" data-width="100%"><a href="https://tenor.com/view/bye-tata-ok-by-gif-gif-18973858">Bye Tata GIF</a>from <a href="https://tenor.com/search/bye-gifs">Bye GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
-
 <img src="https://c.tenor.com/Ux64jVIE2pQAAAAC/bye-tata.gif" width="220"/>
